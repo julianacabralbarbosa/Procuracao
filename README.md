@@ -41,4 +41,31 @@ Pontifícia Universidade Católica do Rio de Janeiro
 
 Curso de Pós Graduação *Business Intelligence Master*
 
+
 ![image](https://user-images.githubusercontent.com/96187336/159205377-af8b0023-29e6-4c75-ace6-d236fe9c86f1.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205428-0611722b-6c8b-46cc-a523-cb7b445aafc1.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205450-14360b76-eb27-4316-9269-a4f068d34679.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205474-cdfb372a-82ed-4dc7-87be-989d0f637d5c.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205501-59342906-89c4-4efc-bb2e-9eb7fdd9a3b8.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205519-ac07df60-2511-432f-b022-bf322ac51767.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205530-c6a666a2-5647-4667-ae24-6a11d2c1e0ec.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205540-06a2d5b2-eb09-4922-83b3-7b917dad3bb1.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205549-f45da324-5a6f-4264-9da8-16107e95dbbd.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205556-146761d3-8372-4d04-80ef-ca47d871970e.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205567-b0052f6e-47fb-4f13-acb2-f53406682457.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205577-662560b7-c265-4b79-a1d4-3c25f91ad6e5.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205603-0afb8ab8-3512-4309-b468-47589fa8d35a.png)
+
+![image](https://user-images.githubusercontent.com/96187336/159205610-57fbd962-c021-44b6-88f5-bd72d572f836.png)
