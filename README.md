@@ -1,4 +1,4 @@
-# Procuracao
+# Otimização da Rotina de Confecção de Procurações para Representação de Fundos de Investimentos em Assembleias
 
 #### Aluno: [Juliana Barbosa](https://github.com/julybarbosa/procuracoes)
 #### Orientadora: [Manoela Kohler](https://github.com/manoelakohler).
